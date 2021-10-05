@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @reponation
+- 👀 I’m interested in automation and solving problems
+- 🌱 I’m currently learning how to teach machine and utilise data
+- 💞️ I’m looking to collaborate on anything that is useful for the mankind
+- 📫 Let's get connected ... https://www.linkedin.com/in/opensource/
